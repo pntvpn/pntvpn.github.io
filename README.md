@@ -1,1 +1,0 @@
-# https://pntvpn.github.io
